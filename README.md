@@ -1,2 +1,2 @@
 20192217 Kim Soeun
-Kookmin Univ. SW
+Kookmin Univ. SW dept.
